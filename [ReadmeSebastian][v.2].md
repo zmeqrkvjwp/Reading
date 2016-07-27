@@ -48,7 +48,7 @@ Ramiro:
 
 	 • Regalias en niveles superiores.
  
--	Por otra parte, no solicitamos disponibilidad de cambio de residencia, no solicitamos experiencia previa, solo solicitamos constancia y comunicación. Si, estas interesado envía tu curriculum vitae y en breve estaremos en contacto 
+-	Por otra parte, no solicitamos disponibilidad de cambio de residencia, no solicitamos experiencia previa, solo solicitamos constancia y comunicación. Si, estas interesado en iniciar este negocio independiente envía tu curriculum vitae y en breve estaremos en contacto.
 
 -	mail: rama.croc@gmail.com
 
