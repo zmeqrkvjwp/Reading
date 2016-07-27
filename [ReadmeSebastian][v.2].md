@@ -26,14 +26,23 @@ Ramiro:
 	
 -	Si, sos elegido entre los cadidatos 
 	Los beneficios que tendrías son:
+
 	 • Buen ambiente laboral. 
+
 	 • Flexibilidad horaria. 
+
 	 • Capasitaciónes semanales y mensuales. 
+
 	 • Oportunidades de crecimiento empresarial. 
+
 	 • Oportunidades de trabajo FreeLance. 
+
 	 • Oportunidades de formar parte del equipo de proyectos. 
+
 	 • Vacaciones pagas dependiendo de tu esfuerzo.
+
 	 • Escalavilidad.
+
 	 • No trabajarias en relación dependencia, por lo que recibiras 
 	   una ganancia neta del sevicio.
  
