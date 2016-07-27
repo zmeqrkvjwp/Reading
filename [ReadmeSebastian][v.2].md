@@ -11,7 +11,7 @@ Maty:
 	Q lugar es el trabajo y demas..
 
 Ramiro:
--	Okey, yo formo parte del equipo de proyectos de una empresa de 	nutrición estamos en la busqueda de aspirantes Trainee's 	emprendedores.
+-	Okey, yo formo parte del equipo de proyectos de una empresa de 	nutrición estamos en la busqueda de aspirantes Trainee's 	que sean emprendedores.
 	
 -	Tu función principalmente seria recomendar y dar servicio a 	gente que este necesitando ayuda con sus hábitos alimenticios, 	para ello la empresa ofrece una serie de capacitaciones semanales y mensuales.
 	
