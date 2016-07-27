@@ -41,10 +41,12 @@ Ramiro:
 
 	 • Vacaciones pagas dependiendo de tu esfuerzo.
 
-	 • Escalavilidad.
-
 	 • No trabajarias en relación dependencia, por lo que recibiras 
 	   una ganancia neta del sevicio.
+	 
+	 • Escalavilidad.
+
+	 • Regalias en niveles superiores.
  
 -	Por otra parte, no solicitamos disponibilidad de cambio de residencia, no solicitamos experiencia previa, solo solicitamos constancia y comunicación. Si, estas interesado envía tu curriculum vitae y en breve estaremos en contacto 
 
