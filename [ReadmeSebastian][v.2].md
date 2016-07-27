@@ -1,5 +1,5 @@
 Maty:
--	[Saludo]        Hola ramiro me interesa tu propuesta,quisiera saber mas
+-	Hola ramiro me interesa tu propuesta,quisiera saber mas
 
 Ramiro:
 -	Hola Maty, buenas noches
